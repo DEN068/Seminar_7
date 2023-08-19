@@ -3,4 +3,4 @@
 
 
 
-![Screenshot_5](https://github.com/DEN068/Seminar_7/assets/112544350/fd2d60bc-e29e-4d1b-bc7f-790d1fd1b11e)
+<img width="600" alt="Screenshot_8" src="https://github.com/DEN068/Seminar_7/assets/112544350/ef8df627-2002-4334-b2c8-c0d6b634c8ed">
